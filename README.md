@@ -1,1 +1,0 @@
-# james-p-foster.github.io
